@@ -1,2 +1,6 @@
 # hello-world
-HEHEHE BOII
+
+Good afternoon parents, good afternoon..boys and girls.
+STFU
+Do you need to lead
+NO BEACH
